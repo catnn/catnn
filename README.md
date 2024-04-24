@@ -2,8 +2,8 @@
 - 
 - 🌱 I’m currently learning ...
 - 
-- 
-- 
+- co owner [Error_X529]
+- ben .b founder
 - ⚡ Fun fact: im a kid who finds game sites
 
 <!---
